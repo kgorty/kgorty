@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kgorty
+- 👀 I’m interested in sharks and cleaning the ocean
+- 🌱 I’m currently learning everything!
+- 💞️ I’m looking to collaborate on whatever will chage the world for the better!
+- 📫 How to reach me - You can't, I work in the forest using solar
+- ⚡ Fun fact: I have never copy + pasted from StackOverflow, NEVER!
